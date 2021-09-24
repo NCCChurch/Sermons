@@ -7,4 +7,5 @@
 * ## [210822 薛弟兄 你当刚强壮胆  （约书亚记 1:1-9）](https://nccchurch.github.io/210822/)
 * ## [210815 黄牧师 直面现实的生命历程](https://nccchurch.github.io/210815/)
 * ## [210808 苗弟兄 同心建造充满神荣耀的教会](https://nccchurch.github.io/210808/)
+* ## [210801 沈弟兄 和你同去 （出埃及记 33-36章）](https://nccchurch.github.io/210801/)
 
