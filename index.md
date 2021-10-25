@@ -1,6 +1,6 @@
 # 主日证道
 
-* ## [211024 彭老师 这到底是谁 (马可福音 5、6章)](https://nccchurch.github.io/211024/)
+* ## [211024 彭老师 这到底是谁？ (马可福音 5、6章)](https://nccchurch.github.io/211024/)
 * ## [211017 赵弟兄 真实敬拜者的福音 (马可福音 3:6-12)](https://nccchurch.github.io/211017/)
 * ## [211010 张弟兄 当悔改，信福音 (马可福音 1:15)](https://nccchurch.github.io/211010/)
 * ## [211003 苗老师 出死入生入迦南，争战得胜得基业 (约书亚记)](https://nccchurch.github.io/211003/)
