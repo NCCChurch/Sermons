@@ -1,6 +1,6 @@
 # 主日证道
 
-* ## [220109 陈老师 悔改归正 (使徒行传 3:11-16)](https://nccchurch.github.io/220109/)
+* ## [220109 陈老师 悔改归正 (使徒行传 3:11-26)](https://nccchurch.github.io/220109/)
 * ## [220102 薛弟兄 你们要受圣灵的洗 (使徒行传 1:1-8)](https://nccchurch.github.io/220102/)
 * ## [211226 彭老师 有一婴孩为我们而生 (以赛亚书 9:6)](https://nccchurch.github.io/211226/)
 * ## [211219 赵传道 当尊贵荣耀地活着 (诗篇 8:3-8)](https://nccchurch.github.io/211219/)
