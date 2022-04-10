@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [220410 赵传道 提防人的酵  (使徒行传 23:6-8)](https://nccchurch.github.io/220410/)
 * ## [220403 赵弟兄 行走的异乡客  (使徒行传 22:21-22)](https://nccchurch.github.io/220403/)
 * ## [220327 彭老师 施比受更为有福  (使徒行传 20章)](https://nccchurch.github.io/220327/)
 * ## [220320 薛弟兄 主道兴旺得胜  (使徒行传 19:20)](https://nccchurch.github.io/220320/)
