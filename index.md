@@ -1,6 +1,6 @@
 # 主日证道
 
-* ## [220605 薛弟兄 死与生  (启示录 3:1-13)](https://nccchurch.github.io/220605/)
+* ## [220605 薛弟兄 死与生  (启示录 3:1-13)](https://nccchurch.github.io/220506/)
 * ## [220529 张弟兄 凡有耳的，就应当听  (启示录 2:12-29)](https://nccchurch.github.io/220529/)
 * ## [220522 赵弟兄 勇敢见证者的冠冕  (启示录 2:1-11)](https://nccchurch.github.io/220522/)
 * ## [220515 彭老师 开启天上的异象  (启示录 1章)](https://nccchurch.github.io/220515/)
