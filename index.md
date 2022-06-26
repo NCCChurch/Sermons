@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [220626 赵弟兄 得胜的羔羊  (启示录 5章)](https://nccchurch.github.io/220626/)
 * ## [220619 马弟兄 在敬拜中遇见神  (启示录 4章)](https://nccchurch.github.io/220619/)
 * ## [220612 彭老师 真正的富足  (启示录 3:14-22)](https://nccchurch.github.io/220612/)
 * ## [220605 薛弟兄 死与生  (启示录 3:1-13)](https://nccchurch.github.io/220605/)
