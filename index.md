@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [220703 张弟兄 谁能站立得住呢？  (启示录 6章)](https://nccchurch.github.io/220703/)
 * ## [220626 赵弟兄 得胜的羔羊  (启示录 5章)](https://nccchurch.github.io/220626/)
 * ## [220619 马弟兄 在敬拜中遇见神  (启示录 4章)](https://nccchurch.github.io/220619/)
 * ## [220612 彭老师 真正的富足  (启示录 3:14-22)](https://nccchurch.github.io/220612/)
