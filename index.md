@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [220710 薛弟兄 神的子民得庇护  (启示录 7章)](https://nccchurch.github.io/220710/)
 * ## [220703 张弟兄 谁能站立得住呢？  (启示录 6章)](https://nccchurch.github.io/220703/)
 * ## [220626 赵弟兄 得胜的羔羊  (启示录 5章)](https://nccchurch.github.io/220626/)
 * ## [220619 马弟兄 在敬拜中遇见神  (启示录 4章)](https://nccchurch.github.io/220619/)
