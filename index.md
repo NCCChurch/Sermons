@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [220717 赵弟兄 要作天上的民  (启示录 8章)](https://nccchurch.github.io/220717/)
 * ## [220710 薛弟兄 神的子民得庇护  (启示录 7章)](https://nccchurch.github.io/220710/)
 * ## [220703 张弟兄 谁能站立得住呢？  (启示录 6章)](https://nccchurch.github.io/220703/)
 * ## [220626 赵弟兄 得胜的羔羊  (启示录 5章)](https://nccchurch.github.io/220626/)
