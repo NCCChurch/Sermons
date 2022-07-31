@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [220731 彭老师 大天使，小书卷，真门徒  (启示录 10章)](https://nccchurch.github.io/220731/)
 * ## [220724 苗弟兄 恩门尚未关闭，抢救千万灵魂  (启示录 9章)](https://nccchurch.github.io/220724/)
 * ## [220717 赵弟兄 要作天上的民  (启示录 8章)](https://nccchurch.github.io/220717/)
 * ## [220710 薛弟兄 神的子民得庇护  (启示录 7章)](https://nccchurch.github.io/220710/)
