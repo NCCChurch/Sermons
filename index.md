@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [220814 林老师  (启示录 )](https://nccchurch.github.io/220814/)
 * ## [220807 薛弟兄 见证完毕，号角吹响  (启示录 11章)](https://nccchurch.github.io/220807/)
 * ## [220731 彭老师 大天使，小书卷，真门徒  (启示录 10章)](https://nccchurch.github.io/220731/)
 * ## [220724 苗弟兄 恩门尚未关闭，抢救千万灵魂  (启示录 9章)](https://nccchurch.github.io/220724/)
