@@ -1,6 +1,6 @@
 # 主日证道
 
-* ## [220821 彭老师 天上的征战  (启示录 12章)](https://nccchurch.github.io/220821/)
+* ## [220821 彭老师 天上的争战  (启示录 12章)](https://nccchurch.github.io/220821/)
 * ## [220814 林老师 在末世做主的门徒  (启示录 1:3)](https://nccchurch.github.io/220814/)
 * ## [220807 薛弟兄 见证完毕，号角吹响  (启示录 11章)](https://nccchurch.github.io/220807/)
 * ## [220731 彭老师 大天使，小书卷，真门徒  (启示录 10章)](https://nccchurch.github.io/220731/)
