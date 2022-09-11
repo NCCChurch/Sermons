@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [220911 薛弟兄 海边弹唱  (启示录 15:1-8)](https://nccchurch.github.io/220911/)
 * ## [220904 张弟兄 圣徒坚忍，持守真道  (启示录 14章)](https://nccchurch.github.io/220904/)
 * ## [220828 赵弟兄 圣民务要抵挡二兽  (启示录 13章)](https://nccchurch.github.io/220828/)
 * ## [220821 彭老师 天上的争战  (启示录 12章)](https://nccchurch.github.io/220821/)
