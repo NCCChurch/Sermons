@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [220925 彭老师 “双城记”  (启示录 17章)](https://nccchurch.github.io/220925/)
 * ## [220918 赵弟兄 圣哉，耶和华的日子  (启示录 16章)](https://nccchurch.github.io/220918/)
 * ## [220911 薛弟兄 海边弹唱  (启示录 15:1-8)](https://nccchurch.github.io/220911/)
 * ## [220904 张弟兄 圣徒坚忍，持守真道  (启示录 14章)](https://nccchurch.github.io/220904/)
