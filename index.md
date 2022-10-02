@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [221002 薛弟兄 你们要从那城走出来  (启示录 18:4-5)](https://nccchurch.github.io/221002/)
 * ## [220925 彭老师 “双城记”  (启示录 17章)](https://nccchurch.github.io/220925/)
 * ## [220918 赵弟兄 圣哉，耶和华的日子  (启示录 16章)](https://nccchurch.github.io/220918/)
 * ## [220911 薛弟兄 海边弹唱  (启示录 15:1-8)](https://nccchurch.github.io/220911/)
