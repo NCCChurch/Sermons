@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [221023 赵传道 和好的五个层次  (启示录 21:5)](https://nccchurch.github.io/221023/)
 * ## [221016 马弟兄 与基督一同作王  (启示录 20章)](https://nccchurch.github.io/221016/)
 * ## [221009 赵弟兄 凯旋大君之筵席  (启示录 19章)](https://nccchurch.github.io/221009/)
 * ## [221002 薛弟兄 你们要从那城走出来  (启示录 18:4-5)](https://nccchurch.github.io/221002/)
