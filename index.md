@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [221113 弟苗兄 聚焦新城异象，迎接基督再来  (启示录)](https://nccchurch.github.io/221113/)
 * ## [221106 薛弟兄 启示录与我  (启示录)](https://nccchurch.github.io/221106/)
 * ## [221030 彭老师 明亮的晨星  (启示录 21、22章)](https://nccchurch.github.io/221030/)
 * ## [221023 赵传道 和好的五个层次  (启示录 21:5)](https://nccchurch.github.io/221023/)
