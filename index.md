@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [221120 陈老师 献祭与敬拜  (利未记 1章)](https://nccchurch.github.io/221120/)
 * ## [221113 弟苗兄 聚焦新城异象，迎接基督再来  (启示录)](https://nccchurch.github.io/221113/)
 * ## [221106 薛弟兄 启示录与我  (启示录)](https://nccchurch.github.io/221106/)
 * ## [221030 彭老师 明亮的晨星  (启示录 21、22章)](https://nccchurch.github.io/221030/)
