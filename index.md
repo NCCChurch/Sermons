@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [221127 赵弟兄 祭祀的国度  (利未记 8章)](https://nccchurch.github.io/221127/)
 * ## [221120 陈老师 献祭与敬拜  (利未记 1章)](https://nccchurch.github.io/221120/)
 * ## [221113 弟苗兄 聚焦新城异象，迎接基督再来  (启示录)](https://nccchurch.github.io/221113/)
 * ## [221106 薛弟兄 启示录与我  (启示录)](https://nccchurch.github.io/221106/)
