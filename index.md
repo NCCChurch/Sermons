@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [221211 赵弟兄 当那日，进入幔内  (利未记 16章)](https://nccchurch.github.io/221211/)
 * ## [221204 薛弟兄 洁净  (利未记 10-15章)](https://nccchurch.github.io/221204/)
 * ## [221127 赵弟兄 祭司的国度  (利未记 8章)](https://nccchurch.github.io/221127/)
 * ## [221120 陈老师 献祭与敬拜  (利未记 1章)](https://nccchurch.github.io/221120/)
