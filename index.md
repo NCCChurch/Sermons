@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [221225 圣诞特会](https://nccchurch.github.io/221225/)
 * ## [221218 陈老师 耶和华的节期  (利未记 23章)](https://nccchurch.github.io/221218/)
 * ## [221211 赵弟兄 当那日，进入幔内  (利未记 16章)](https://nccchurch.github.io/221211/)
 * ## [221204 薛弟兄 洁净  (利未记 10-15章)](https://nccchurch.github.io/221204/)
