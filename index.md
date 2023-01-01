@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [230101 张弟兄 要听从耶和华的话  (士师记 1-5章)](https://nccchurch.github.io/230101/)
 * ## [221225 圣诞特会](https://nccchurch.github.io/221225/)
 * ## [221218 陈老师 耶和华的节期  (利未记 23章)](https://nccchurch.github.io/221218/)
 * ## [221211 赵弟兄 当那日，进入幔内  (利未记 16章)](https://nccchurch.github.io/221211/)
