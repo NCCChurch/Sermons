@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [230108 薛弟兄 基甸300勇士  (士师记 7章)](https://nccchurch.github.io/230108/)
 * ## [230101 张弟兄 要听从耶和华的话  (士师记 1-5章)](https://nccchurch.github.io/230101/)
 * ## [221225 圣诞特会](https://nccchurch.github.io/221225/)
 * ## [221218 陈老师 耶和华的节期  (利未记 23章)](https://nccchurch.github.io/221218/)
