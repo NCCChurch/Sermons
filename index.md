@@ -1,6 +1,7 @@
 # 主日证道
 
 
+* ## [230129 赵传道 培育信心的种子 （士师记 13-16章）](https://nccchurch.github.io/230129/)
 * ## [230123 彭老师 兔飞猛进，如鹰展翅 （新春特别祝福）](https://nccchurch.github.io/230123/)
 * ## [230115 赵弟兄 争战得胜的勇士  (士师记 11-12章)](https://nccchurch.github.io/230115/)
 * ## [230108 薛弟兄 基甸300勇士  (士师记 7章)](https://nccchurch.github.io/230108/)
