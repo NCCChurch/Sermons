@@ -1,7 +1,7 @@
 # 主日证道
 
 
-
+* ## [230402 张弟兄 认识恩典的主（路加福音 5章）](https://nccchurch.github.io/230402/)
 * ## [230326 彭老师 有血有肉，为你为我（路加福音 4章）](https://nccchurch.github.io/230326/)
 * ## [230319 赵弟兄 结出果子与悔改的心相称（路加福音 3章）](https://nccchurch.github.io/230319/)
 * ## [230312 薛弟兄 一齐(起)增长（路加福音 2章）](https://nccchurch.github.io/230312/)
