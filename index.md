@@ -1,7 +1,7 @@
 # 主日证道
 
-* ## [230423 陈老师 这么大的信心 ](https://nccchurch.github.io/230423/)
-* ## [230416 彭老师 作主门徒，翻转世界 ](https://nccchurch.github.io/230416/)
+* ## [230423 陈老师 这么大的信心 (路加福音 7:1-10)](https://nccchurch.github.io/230423/)
+* ## [230416 彭老师 作主门徒，翻转世界 (路加福音 6章)](https://nccchurch.github.io/230416/)
 * ## [230409 赵弟兄 复活是清明的盼望 ](https://nccchurch.github.io/230409/)
 * ## [230402 张弟兄 认识恩典的主（路加福音 5章）](https://nccchurch.github.io/230402/)
 * ## [230326 彭老师 有血有肉，为你为我（路加福音 4章）](https://nccchurch.github.io/230326/)
