@@ -1,5 +1,7 @@
 # 主日证道
 
+
+* ## [230430 薛弟兄 信心的成长：听道、传道、行道 (路加福音 8:1-21)](https://nccchurch.github.io/230430/)
 * ## [230423 陈老师 这么大的信心 (路加福音 7:1-10)](https://nccchurch.github.io/230423/)
 * ## [230416 彭老师 作主门徒，翻转世界 (路加福音 6章)](https://nccchurch.github.io/230416/)
 * ## [230409 赵弟兄 复活是清明的盼望 ](https://nccchurch.github.io/230409/)
