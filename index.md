@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [230709 彭老师 润去哪一国？](https://nccchurch.github.io/230709/)
 * ## [230702 赵弟兄 神国的好管家 (路加福音 16)](https://nccchurch.github.io/230702/)
 * ## [230625 张弟兄 浪子怎样回头 (路加福音 15)](https://nccchurch.github.io/230625/)
 * ## [230618 薛弟兄 作主的门徒 (路加福音 14:25-35)](https://nccchurch.github.io/230618/)
