@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [230716 沈弟兄 承受 S 国 ](https://nccchurch.github.io/230716/)
 * ## [230709 彭老师 润去哪一国？](https://nccchurch.github.io/230709/)
 * ## [230702 赵弟兄 神国的好管家 (路加福音 16)](https://nccchurch.github.io/230702/)
 * ## [230625 张弟兄 浪子怎样回头 (路加福音 15)](https://nccchurch.github.io/230625/)
