@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [230723 张弟兄 凡有的，还要加给他 ](https://nccchurch.github.io/230723/)
 * ## [230716 沈弟兄 承受 神 国 ](https://nccchurch.github.io/230716/)
 * ## [230709 彭老师 润去哪一国？](https://nccchurch.github.io/230709/)
 * ## [230702 赵弟兄 神国的好管家 (路加福音 16)](https://nccchurch.github.io/230702/)
