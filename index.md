@@ -1,5 +1,7 @@
 # 主日证道
 
+* ## [230806 赵弟兄 爱子的权柄 ](https://nccchurch.github.io/230806/)
+* ## [230730 苗弟兄 走过十年恩典路，开启十架新征程 ](https://nccchurch.github.io/230730/)
 * ## [230723 张弟兄 凡有的，还要加给他 ](https://nccchurch.github.io/230723/)
 * ## [230716 沈弟兄 承受 神 国 ](https://nccchurch.github.io/230716/)
 * ## [230709 彭老师 润去哪一国？](https://nccchurch.github.io/230709/)
