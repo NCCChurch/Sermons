@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [230827 彭老师 至暗之光：他被列在罪犯之中 ](https://nccchurch.github.io/230827/)
 * ## [230820 沈弟兄 磨炼之日 ](https://nccchurch.github.io/230820/)
 * ## [230813 薛弟兄 你们得救的日子近了 ](https://nccchurch.github.io/230813/)
 * ## [230806 赵弟兄 爱子的权柄 ](https://nccchurch.github.io/230806/)
