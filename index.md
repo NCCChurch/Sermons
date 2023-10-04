@@ -1,7 +1,7 @@
 # 主日证道
 
-* ## [231001 张弟兄 神的名，因你们受亵渎  ](https://nccchurch.github.io/231001/)
-* ## [230924 沈弟兄 蒙召与奉召  ](https://nccchurch.github.io/230924/)
+* ## [231001 张弟兄 神的名，因你们受亵渎 （罗2章）  ](https://nccchurch.github.io/231001/)
+* ## [230924 沈弟兄 蒙召与奉召 （罗1章）  ](https://nccchurch.github.io/230924/)
 * ## [230917 苗弟兄 开启十架新征程-门徒再生，小组倍增 (专题） ](https://nccchurch.github.io/230917/)
 * ## [230910 赵弟兄 主基督复活了(路24章） ](https://nccchurch.github.io/230910/)
 * ## [230903 张弟兄 我查不出他有什么罪（路23章） ](https://nccchurch.github.io/230903/)
