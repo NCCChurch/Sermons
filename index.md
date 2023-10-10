@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [231008 赵弟兄 人称义是因着信 （罗3章）  ](https://nccchurch.github.io/231008/)
 * ## [231001 张弟兄 神的名，因你们受亵渎 （罗2章）  ](https://nccchurch.github.io/231001/)
 * ## [230924 沈弟兄 蒙召与奉召 （罗1章）  ](https://nccchurch.github.io/230924/)
 * ## [230917 苗弟兄 开启十架新征程-门徒再生，小组倍增 (专题） ](https://nccchurch.github.io/230917/)
