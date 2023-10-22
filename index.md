@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [231022 沈弟兄 神和 （罗5章）  ](https://nccchurch.github.io/231022/)
 * ## [231015 彭老师 真正的信心 （罗4章）  ](https://nccchurch.github.io/231015/)
 * ## [231008 赵弟兄 人称义是因着信 （罗3章）  ](https://nccchurch.github.io/231008/)
 * ## [231001 张弟兄 神的名，因你们受亵渎 （罗2章）  ](https://nccchurch.github.io/231001/)
