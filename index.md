@@ -1,6 +1,6 @@
 # 主日证道
 
-* ## [231029 沈弟兄 先死后生 （罗6章）  ](https://nccchurch.github.io/231029/)
+* ## [231029 薛弟兄 先死后生 （罗6章）  ](https://nccchurch.github.io/231029/)
 * ## [231022 沈弟兄 神和 （罗5章）  ](https://nccchurch.github.io/231022/)
 * ## [231015 彭老师 真正的信心 （罗4章）  ](https://nccchurch.github.io/231015/)
 * ## [231008 赵弟兄 人称义是因着信 （罗3章）  ](https://nccchurch.github.io/231008/)
