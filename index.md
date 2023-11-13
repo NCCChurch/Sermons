@@ -1,6 +1,6 @@
 # 主日证道
 
-* ## [231111 张弟兄 不能隔绝的爱 （罗8章）  ](https://nccchurch.github.io/231112/)
+* ## [231112 张弟兄 不能隔绝的爱（罗8章）  ](https://nccchurch.github.io/231112/)
 * ## [231105 沈弟兄 结果子给 神 （罗7章）  ](https://nccchurch.github.io/231105/)
 * ## [231029 薛弟兄 先死后生 （罗6章）  ](https://nccchurch.github.io/231029/)
 * ## [231022 沈弟兄 神和 （罗5章）  ](https://nccchurch.github.io/231022/)
