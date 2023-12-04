@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [231203 赵弟兄（罗11章）  ](https://nccchurch.github.io/231203/)
 * ## [231126 彭老师 从感恩到蒙恩（2023年度感恩特会）  ](https://nccchurch.github.io/231126/)
 * ## [231119 薛弟兄 像保罗一样去爱（罗9章）  ](https://nccchurch.github.io/231119/)
 * ## [231112 张弟兄 不能隔绝的爱（罗8章）  ](https://nccchurch.github.io/231112/)
