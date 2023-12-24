@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [231224 苗老师 圣诞 FY 特会（含见证）  ](https://nccchurch.github.io/231224/)
 * ## [231217 张弟兄 敬拜神，顺服主（罗13章）  ](https://nccchurch.github.io/231217/)
 * ## [231210 薛弟兄 将身体献上当作活祭（罗12章）  ](https://nccchurch.github.io/231210/)
 * ## [231203 赵弟兄 作忠心的余民（罗11章）  ](https://nccchurch.github.io/231203/)
