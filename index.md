@@ -1,6 +1,7 @@
 # 主日证道
 
-* ## [231224 苗老师 绝望中的盼望 & 圣诞FY特会（含见证）  ](https://nccchurch.github.io/231224-/)
+* ## [231231 彭老师 新的一年，新的盼望 & 2023新年福Y特会  ](https://nccchurch.github.io/231231/)
+* ## [231224 苗老师 绝望中的盼望 & 2023圣诞福Y特会（含见证）  ](https://nccchurch.github.io/231224-/)
 * ## [231217 张弟兄 敬拜神，顺服主（罗13章）  ](https://nccchurch.github.io/231217/)
 * ## [231210 薛弟兄 将身体献上当作活祭（罗12章）  ](https://nccchurch.github.io/231210/)
 * ## [231203 赵弟兄 作忠心的余民（罗11章）  ](https://nccchurch.github.io/231203/)
