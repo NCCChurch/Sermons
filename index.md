@@ -135,7 +135,7 @@
 <hr><hr>
 <table>
 	<tr>
-	      	<td><font size="4"><a href="https://nccchurch.github.io/Sermons/">主日证道</a></font></td>
+	      	<td><font size="4"><a href="https://nccchurch.github.io/Holly-Bibble-Study/index.html">圣 J 通读</a></font></td></p>
 	</tr>
 	<tr>
 	      	<td><font size="4"><a href="https://nccchurch.github.io/Bibble-Videos/index.html">视频</a></font></td></p>
