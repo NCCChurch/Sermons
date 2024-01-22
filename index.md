@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240121 赵弟兄 永生神的教会（罗16章）  ](https://nccchurch.github.io/240121/)
 * ## [240114 张弟兄 益人荣神，传扬福Y（罗15章）  ](https://nccchurch.github.io/240114/)
 * ## [240107 薛弟兄 彼此接纳（罗14章）  ](https://nccchurch.github.io/240107/)
 * ## [231231 彭老师 新的一年，新的盼望 & 2023新年福Y特会  ](https://nccchurch.github.io/231231/)
