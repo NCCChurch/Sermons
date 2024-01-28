@@ -130,23 +130,23 @@
 * ## [210815 黄牧师 直面现实的生命历程](https://nccchurch.github.io/210815/)
 * ## [210808 苗弟兄 同心建造充满神荣耀的教会](https://nccchurch.github.io/210808/)
 * ## [210801 沈弟兄 和你同去 （出埃及记 33-36章）](https://nccchurch.github.io/210801/)
-
+* 
 
 
 <table>
 	<tr>
-	      	<td><font size="4"><a href="https://nccchurch.github.io/Holly-Bibble-Study/index.html">圣 J 通读</a></font></td></p>
+	      	<td><font size="4"><a href="https://nccchurch.github.io/Holly-Bibble-Study/index.html">圣 J 通读</a></font></td>
 	</tr>
 	<tr>
-	      	<td><font size="4"><a href="https://nccchurch.github.io/Bibble-Videos/index.html">视频</a></font></td></p>
+	      	<td><font size="4"><a href="https://nccchurch.github.io/Bibble-Videos/index.html">视频</a></font></td>
 	</tr>
 	<tr>
-	      	<td><font size="4"><a href="https://nccchurch.github.io/group/index.html">小组查经</a></font></td></p>
+	      	<td><font size="4"><a href="https://nccchurch.github.io/group/index.html">小组查经</a></font></td>
 	</tr>
 	<tr>
-	      	<td><font size="4"><a href="https://nccchurch.github.io/Worship/index.html">敬拜培训</a></font></td></p>
+	      	<td><font size="4"><a href="https://nccchurch.github.io/Worship/index.html">敬拜培训</a></font></td>
 	</tr>
 	<tr>
-	      	<td><font size="4"><a href="https://nccchurch.github.io/Testimony/index.html">见证</a></font></td></p>
+	      	<td><font size="4"><a href="https://nccchurch.github.io/Testimony/index.html">见证</a></font></td>
 	</tr>
 </table>
