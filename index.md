@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240218 赵弟兄 遵YHH的吩咐起行  ](https://nccchurch.github.io/240218/)
 * ## [240211 张弟兄 2024春节福Y特会  ](https://nccchurch.github.io/240211/)
 * ## [240204 沈弟兄 神数与民数（民01-06章）  ](https://nccchurch.github.io/240204/)
 * ## [240128 苗弟兄 主啊，我愿奉献我自己（罗马书）  ](https://nccchurch.github.io/240128/)
