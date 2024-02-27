@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240225 薛弟兄 信心的功课  ](https://nccchurch.github.io/240225/)
 * ## [240218 赵弟兄 遵YHH的吩咐起行  ](https://nccchurch.github.io/240218/)
 * ## [240211 张弟兄 2024春节福Y特会  ](https://nccchurch.github.io/240211/)
 * ## [240204 沈弟兄 神数与民数（民01-06章）  ](https://nccchurch.github.io/240204/)
