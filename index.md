@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240310 沈弟兄 献祭与赐福  ](https://nccchurch.github.io/240310/)
 * ## [240303 张弟兄 新的一代，再进迦南  ](https://nccchurch.github.io/240303/)
 * ## [240225 薛弟兄 信心的功课  ](https://nccchurch.github.io/240225/)
 * ## [240218 赵弟兄 遵YHH的吩咐起行  ](https://nccchurch.github.io/240218/)
