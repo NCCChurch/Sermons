@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240324 苗弟兄 坚定信靠基督，一起进入迦南  ](https://nccchurch.github.io/240324/)
 * ## [240317 薛弟兄 旷野42站  ](https://nccchurch.github.io/240317/)
 * ## [240310 沈弟兄 献祭与赐福  ](https://nccchurch.github.io/240310/)
 * ## [240303 张弟兄 新的一代，再进迦南  ](https://nccchurch.github.io/240303/)
