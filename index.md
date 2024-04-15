@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240414 沈弟兄 约·柜  ](https://nccchurch.github.io/240414/)
 * ## [240407 张弟兄 尊重我的，我必尊重他  ](https://nccchurch.github.io/240407/)
 * ## [240331 赵弟兄 2024复活节特会  ](https://nccchurch.github.io/20240331/)
 * ## [240324 苗弟兄 坚定信靠基督，一起进入迦南  ](https://nccchurch.github.io/240324/)
