@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240428 薛弟兄 听命胜于献祭  ](https://nccchurch.github.io/240428/)
 * ## [240421 赵弟兄 做雅威产业的君  ](https://nccchurch.github.io/240421/)
 * ## [240414 沈弟兄 约·柜  ](https://nccchurch.github.io/240414/)
 * ## [240407 张弟兄 尊重我的，我必尊重他  ](https://nccchurch.github.io/240407/)
