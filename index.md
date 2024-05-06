@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240505 赵弟兄 因为争战的胜败全在乎雅威  ](https://nccchurch.github.io/240505/)
 * ## [240428 薛弟兄 听命胜于献祭  ](https://nccchurch.github.io/240428/)
 * ## [240421 赵弟兄 做雅威产业的君  ](https://nccchurch.github.io/240421/)
 * ## [240414 沈弟兄 约·柜  ](https://nccchurch.github.io/240414/)
