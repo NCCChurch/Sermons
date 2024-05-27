@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240526 薛弟兄 犹大的狮子做王了  ](https://nccchurch.github.io/240526/)
 * ## [240519 张弟兄 从扫罗王到大卫王  ](https://nccchurch.github.io/240519/)
 * ## [240512 沈弟兄 耶和华对？说  ](https://nccchurch.github.io/240512/)
 * ## [240505 赵弟兄 因为争战的胜败全在乎雅威  ](https://nccchurch.github.io/240505/)
