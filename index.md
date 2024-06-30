@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240630 苗弟兄 王道  ](https://nccchurch.github.io/240630/)
 * ## [240623 赵弟兄 圣约之君  ](https://nccchurch.github.io/240623/)
 * ## [240616 薛弟兄 失而复得  ](https://nccchurch.github.io/240616/)
 * ## [240609 张弟兄 大卫的失败和教训  ](https://nccchurch.github.io/240609/)
