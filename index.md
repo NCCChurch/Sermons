@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240714 薛弟兄 生命的转化和建造  ](https://nccchurch.github.io/240714/)
 * ## [240707 张弟兄 恩D之主道成肉身  ](https://nccchurch.github.io/240707/)
 * ## [240630 苗弟兄 王道  ](https://nccchurch.github.io/240630/)
 * ## [240623 赵弟兄 圣约之君  ](https://nccchurch.github.io/240623/)
