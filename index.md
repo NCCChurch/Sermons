@@ -1,6 +1,6 @@
 # 主日证道
 
-* ## [240721 薛弟兄 信子的 得永生  ](https://nccchurch.github.io/240721/)
+* ## [240721 赵弟兄 信子的 得永生  ](https://nccchurch.github.io/240721/)
 * ## [240714 薛弟兄 生命的转化和建造  ](https://nccchurch.github.io/240714/)
 * ## [240707 张弟兄 恩D之主道成肉身  ](https://nccchurch.github.io/240707/)
 * ## [240630 苗弟兄 王道  ](https://nccchurch.github.io/240630/)
