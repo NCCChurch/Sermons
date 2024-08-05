@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240804 薛弟兄 起来，拿起你的褥子走  ](https://nccchurch.github.io/240804/)
 * ## [240728 沈弟兄 这和你说话的就是祂  ](https://nccchurch.github.io/240728/)
 * ## [240721 赵弟兄 信子的 得永生  ](https://nccchurch.github.io/240721/)
 * ## [240714 薛弟兄 生命的转化和建造  ](https://nccchurch.github.io/240714/)
