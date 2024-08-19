@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240818 赵弟兄 人若渴了，可以到我这里来  ](https://nccchurch.github.io/240818/)
 * ## [240811 沈弟兄 遇见与归从  ](https://nccchurch.github.io/240811/)
 * ## [240804 薛弟兄 起来，拿起你的褥子走  ](https://nccchurch.github.io/240804/)
 * ## [240728 沈弟兄 这和你说话的就是祂  ](https://nccchurch.github.io/240728/)
