@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [240915 薛弟兄 耶稣是复活和生命  ](https://nccchurch.github.io/240915/)
 * ## [240908 赵弟兄 我来了，是要叫人得更丰盛的生命  ](https://nccchurch.github.io/240908/)
 * ## [240901 沈弟兄 我为审判到这世上来  ](https://nccchurch.github.io/240901/)
 * ## [240825 张弟兄 真理必叫你们得以自由  ](https://nccchurch.github.io/240825/)
