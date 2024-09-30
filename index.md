@@ -1,6 +1,6 @@
 # 主日证道
 
-
+* ## [240929 赵弟兄 跟随主作门徒  ](https://nccchurch.github.io/240929/)
 * ## [240922 张弟兄 向死而生  ](https://nccchurch.github.io/240922/)
 * ## [240915 薛弟兄 耶稣是复活和生命  ](https://nccchurch.github.io/240915/)
 * ## [240908 赵弟兄 我来了，是要叫人得更丰盛的生命  ](https://nccchurch.github.io/240908/)
