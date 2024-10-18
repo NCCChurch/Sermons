@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [241013 张弟兄 住在主里  ](https://nccchurch.github.io/241013/)
 * ## [241006 赵弟兄 主就是那道路、真理、生命  ](https://nccchurch.github.io/241006/)
 * ## [240929 赵弟兄 跟随主作门徒  ](https://nccchurch.github.io/240929/)
 * ## [240922 张弟兄 向死而生  ](https://nccchurch.github.io/240922/)
