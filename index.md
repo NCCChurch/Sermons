@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [241027 沈弟兄 合而为一之道  ](https://nccchurch.github.io/241027/)
 * ## [241020 薛弟兄 圣灵的工作  ](https://nccchurch.github.io/241020/)
 * ## [241013 张弟兄 住在主里  ](https://nccchurch.github.io/241013/)
 * ## [241006 赵弟兄 主就是那道路、真理、生命  ](https://nccchurch.github.io/241006/)
