@@ -1,6 +1,6 @@
 # 主日证道
 
-* ## [241110 薛弟兄 耶 稣 被 钉 十 字 架  ](https://nccchurch.github.io/241110/)
+* ## [241110 薛弟兄 耶稣被钉十字架  ](https://nccchurch.github.io/241110/)
 * ## [241103 张弟兄 耶 稣 是 S 羔 羊  ](https://nccchurch.github.io/241103/)
 * ## [241027 沈弟兄 合而为一之道  ](https://nccchurch.github.io/241027/)
 * ## [241020 薛弟兄 圣灵的工作  ](https://nccchurch.github.io/241020/)
