@@ -1,5 +1,8 @@
 # 主日证道
 
+* ## [241222 沈弟兄 根基上建造  ](https://nccchurch.github.io/241222/)
+* ## [241215 张弟兄 只传基D与十Z架  ](https://nccchurch.github.io/241215/)
+* ## [241208 薛弟兄 基D是S的能力和智慧  ](https://nccchurch.github.io/241208/)
 * ## [241201 赵弟兄 成为培育门T的共同体  ](https://nccchurch.github.io/241201/)
 * ## [241124 赵弟兄 来跟从我吧  ](https://nccchurch.github.io/241124/)
 * ## [241117 沈弟兄 看见才信  ](https://nccchurch.github.io/241117/)
