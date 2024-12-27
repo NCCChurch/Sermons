@@ -1,5 +1,8 @@
 # 主日证道
 
+* ## [241201 赵弟兄 成为培育门T的共同体  ](https://nccchurch.github.io/241201/)
+* ## [241124 赵弟兄 来跟从我吧  ](https://nccchurch.github.io/241124/)
+* ## [241117 沈弟兄 看见才信  ](https://nccchurch.github.io/241117/)
 * ## [241110 薛弟兄 耶稣被钉十字架  ](https://nccchurch.github.io/241110/)
 * ## [241103 张弟兄 耶 稣 是 S 羔 羊  ](https://nccchurch.github.io/241103/)
 * ## [241027 沈弟兄 合而为一之道  ](https://nccchurch.github.io/241027/)
