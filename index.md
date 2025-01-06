@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [250105 薛弟兄 工人的目标  ](https://nccchurch.github.io/250105/)
 * ## [241229 苗弟兄 真爱的礼物  ](https://nccchurch.github.io/241229/)
 * ## [241222 沈弟兄 根基上建造  ](https://nccchurch.github.io/241222/)
 * ## [241215 张弟兄 只传基D与十Z架  ](https://nccchurch.github.io/241215/)
