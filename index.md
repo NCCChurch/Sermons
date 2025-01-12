@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [250112 赵弟兄 成为圣洁的新团  ](https://nccchurch.github.io/250112/)
 * ## [250105 薛弟兄 工人的目标  ](https://nccchurch.github.io/250105/)
 * ## [241229 苗弟兄 真爱的礼物  ](https://nccchurch.github.io/241229/)
 * ## [241222 沈弟兄 根基上建造  ](https://nccchurch.github.io/241222/)
