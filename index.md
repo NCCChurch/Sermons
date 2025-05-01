@@ -1,6 +1,6 @@
 # 主日证道
 
-* ## [250427 薛弟兄 一代过去，一代又来  ](https://nccchurch.github.io/250427/)
+* ## [250426 薛弟兄 一代过去，一代又来  ](https://nccchurch.github.io/250427/)
 * ## [250420 张弟兄 荣耀的复H  ](https://nccchurch.github.io/250420/)
 * ## [250406 苗弟兄 警醒预备 迎接新郎  ](https://nccchurch.github.io/250406/)
 * ## [250209 张弟兄 爱心比知识更重要（待）  ](https://nccchurch.github.io/250209/)
