@@ -1,5 +1,7 @@
 # 主日证道
 
+* ## [250511 薛弟兄 智慧的国度  ](https://nccchurch.github.io/250511/)
+* ## [250504 苗弟兄 心灵诚实的敬拜  ](https://nccchurch.github.io/250504/)
 * ## [250426 薛弟兄 一代过去，一代又来  ](https://nccchurch.github.io/250427/)
 * ## [250420 张弟兄 荣耀的复H  ](https://nccchurch.github.io/250420/)
 * ## [250406 苗弟兄 警醒预备 迎接新郎  ](https://nccchurch.github.io/250406/)
