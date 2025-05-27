@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [250525 张弟兄 所罗门的教训  ](https://nccchurch.github.io/250525/)
 * ## [250518 赵弟兄 地上的万族都要因你得福  ](https://nccchurch.github.io/250518/)
 * ## [250511 薛弟兄 智慧的国度  ](https://nccchurch.github.io/250511/)
 * ## [250504 苗弟兄 心灵诚实的敬拜  ](https://nccchurch.github.io/250504/)
