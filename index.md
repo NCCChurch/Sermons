@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [250608 苗弟兄 我们都要悔改  ](https://nccchurch.github.io/250608/)
 * ## [250601 赵弟兄 当谨守遵行祂的话（道）  ](https://nccchurch.github.io/250601/)
 * ## [250525 张弟兄 所罗门的教训  ](https://nccchurch.github.io/250525/)
 * ## [250518 赵弟兄 地上的万族都要因你得福  ](https://nccchurch.github.io/250518/)
