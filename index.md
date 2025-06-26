@@ -10,6 +10,7 @@
 * ## [250504 苗弟兄 心灵诚实的敬拜  ](https://nccchurch.github.io/250504/)
 * ## [250426 薛弟兄 一代过去，一代又来  ](https://nccchurch.github.io/250427/)
 * ## [250420 张弟兄 荣耀的复H  ](https://nccchurch.github.io/250420/)
+* ## [250413 赵弟兄 主复活了  ](https://nccchurch.github.io/250413/) 
 * ## [250406 苗弟兄 警醒预备 迎接新郎  ](https://nccchurch.github.io/250406/)
 * ## [250209 张弟兄 爱心比知识更重要（待）  ](https://nccchurch.github.io/250209/)
 * ## [250202 薛弟兄 新的开始（待）  ](https://nccchurch.github.io/250202/)
