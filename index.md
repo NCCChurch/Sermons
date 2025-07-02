@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [250629 赵弟兄 成为时代的雅威见证者 ](https://nccchurch.github.io/250629/)
 * ## [250622 张弟兄 你们心持两意要到几时呢？  ](https://nccchurch.github.io/250622/)
 * ## [250615 薛弟兄 信心的三重试炼  ](https://nccchurch.github.io/250615/)
 * ## [250608 苗弟兄 我们都要悔改  ](https://nccchurch.github.io/250608/)
