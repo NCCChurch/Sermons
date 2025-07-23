@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [250720 苗弟兄 人的尽头，S的起头：奇异恩典 ](https://nccchurch.github.io/250713/)
 * ## [250713 苗弟兄 被提日近，警醒预备 ](https://nccchurch.github.io/250713/)
 * ## [250706 薛弟兄 愿神的灵加倍感动我们 ](https://nccchurch.github.io/250706/)
 * ## [250629 赵弟兄 成为时代的雅威见证者 ](https://nccchurch.github.io/250629/)
