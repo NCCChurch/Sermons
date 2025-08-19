@@ -1,7 +1,8 @@
 # 主日证道
 
-
-* ## [250727 张弟兄 除了以色列之外，普天下没有神 ](https://nccchurch.github.io/25072/)
+* ## [250810 薛弟兄 今日是有信息的日子 ](https://nccchurch.github.io/250810/)
+* ## [250803 苗弟兄 同心建小组 ](https://nccchurch.github.io/250803/)
+* ## [250727 张弟兄 除了以色列之外，普天下没有神 ](https://nccchurch.github.io/250727/)
 * ## [250720 薛弟兄 人的尽头，神的起头：奇异恩典 ](https://nccchurch.github.io/250720/)
 * ## [250713 苗弟兄 被提日近，警醒预备 ](https://nccchurch.github.io/250713/)
 * ## [250706 薛弟兄 愿神的灵加倍感动我们 ](https://nccchurch.github.io/250706/)
