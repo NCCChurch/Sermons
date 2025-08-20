@@ -1,6 +1,6 @@
 # 主日证道
 
-* ## [250817 彭老师 S赐的产业实在美好（待传） ](https://nccchurch.github.io/250817/)
+* ## [250817 彭老师 S赐的产业实在美好（待传） ](https://nccchurch.github.io/2508/)
 * ## [250810 薛弟兄 今日是有信息的日子 ](https://nccchurch.github.io/250810/)
 * ## [250803 苗弟兄 同心建小组（待传） ](https://nccchurch.github.io/250803/)
 * ## [250727 张弟兄 除了以SL之外，普天下没有S ](https://nccchurch.github.io/250727/)
