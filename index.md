@@ -1,5 +1,6 @@
 # 主日证道
 
+* ## [250831 薛弟兄 立约：大卫家生死转折（待传） ](https://nccchurch.github.io/2508/)
 * ## [250824 张弟兄 耶和华对亚哈家的审判（待传） ](https://nccchurch.github.io/2508/)
 * ## [250817 彭老师 S赐的产业实在美好（待传） ](https://nccchurch.github.io/2508/)
 * ## [250810 薛弟兄 今日是有信息的日子 ](https://nccchurch.github.io/250810/)
